@@ -8,6 +8,10 @@
 
 - https://trgbbs.top             唐人阁社区论坛
 
+- https://trgbbs.gay             唐人阁社区论坛
+
+- https://trgbbs.wtf             唐人阁社区论坛
+
 - https://trgbbs.tk              唐人阁社区论坛
 
 - https://trgbbs.ml              唐人阁社区论坛
