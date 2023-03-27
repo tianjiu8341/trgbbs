@@ -4,6 +4,16 @@
 
 - https://trgbbs.com 
 
+https://xyybbs.net 香约约论坛
+
+https://trgbbs.xyz 唐人阁论坛
+
+https://yplbbs.net 香约约论坛
+
+https://qblbbs.com 曲摆楼论坛
+
+https://qygbbs.com 群游阁论坛
+
 ## 备用网址
 
 - https://trgbbs.top             唐人阁社区论坛
