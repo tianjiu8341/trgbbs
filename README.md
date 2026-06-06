@@ -1,8 +1,10 @@
 # trgbbs 唐人阁社区论坛
+https://trgbbs.lol  
+是 唐人阁论坛 最新地址，但是永久地址是 trgforum.com 这样的 .com 域名，还有备用网址  trgbbs.cfd
+
 
 ## 永久网址发布（加入收藏夹，永不迷路）
-
-- https://trgbbs.lol 
+ 
 
 https://xyybbs.lol 香约约论坛
 
